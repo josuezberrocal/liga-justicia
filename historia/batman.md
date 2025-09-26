@@ -1,0 +1,2 @@
+## Historia de batman
+La historia de Batman es la de Bruce Wayne, un niño que presencia el asesinato de sus padres, lo que lo lleva a dedicar su vida a combatir el crimen en Gotham City como un justiciero llamado Batman. Bruce se entrena física e intelectualmente, y usa su riqueza y tecnología para crear un arsenal de herramientas y un disfraz de murciélago para inspirar miedo en los criminales. A diferencia de otros superhéroes, no tiene superpoderes, sino que utiliza su inteligencia, habilidades de detective y su destreza física. 
