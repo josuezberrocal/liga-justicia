@@ -1,2 +1,0 @@
-## Historia de flash
-La historia de Flash comienza con Jay Garrick, un estudiante que obtiene supervelocidad al ser expuesto a vapores de agua pesada, convirtiéndose en el primer Flash. Posteriormente, Barry Allen obtiene sus poderes de una manera similar: un rayo lo golpea en su laboratorio, infundiéndole una velocidad sobrehumana que utiliza para combatir el crimen. A lo largo de los cómics, diferentes personajes han adoptado la identidad de Flash, pero Jay Garrick y Barry Allen son los más icónicos, cada uno con su propio origen y legado dentro del universo de DC Comics. 
